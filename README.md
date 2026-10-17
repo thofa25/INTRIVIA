@@ -12,4 +12,4 @@ Setelah melewati beberapa rangkaian INTRIVIA sejauh ini, saya bersyukur karna me
 Trimakasih juga kepada teman teman cluster telah memlewati beberapa rangkaian sebelumnya dengan antusiasnya. Tidak lupa juga trimakasih kepada kakak kakak mentor yang telah membimbing kami sejauh ini.
 
 ## Harapan Kuliah 
-Harapan saya yaitu dapat berkuliah dengan baik, mengikuti semua pembelajaran. Lalu saya berharap dapat membangun CV dan portofolio yang bagus mulai dari kuliah ini
+Harapan saya yaitu dapat berkuliah dengan baik, mengikuti semua pembelajaran. Lalu saya berharap dapat membangun CV dan portofolio yang bagus mulai dari kuliah ini.
